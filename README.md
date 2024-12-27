@@ -1,0 +1,1 @@
+# KT_NR-5G-_APN_Patch_For_Xperia_10_VI
